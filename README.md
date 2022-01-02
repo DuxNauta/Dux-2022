@@ -1,2 +1,2 @@
-# Dux-2021
+# Dux-2022
 ## Ad Astra
